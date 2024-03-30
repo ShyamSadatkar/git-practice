@@ -1,1 +1,1 @@
-I am learning git and it really nice.
+I am learning git and it really nice very nice day.
